@@ -1,3 +1,8 @@
-Notes on stock reseach (for personal use):
+Notes on stock research:
 
-- PAYPAL
+- Paypal
+- Alibaba
+- 3M
+- Stanley Black and Decker
+- Citigroup
+- ALLY 
